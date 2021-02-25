@@ -1,1 +1,0 @@
-# InterpretationstatistiqueL3MATHS_APPLIQUEES
